@@ -18,7 +18,7 @@ One theory is that the name Isar comes from the hypothetical Indo-European root 
 1. Ésera (Spain)
 
 
-[Defined Reference] [1]
+[Wikipedia Reference] [1]
 
 [1]: https://en.wikipedia.org/wiki/Isar
 
